@@ -1,0 +1,4 @@
+- 👋 ola meu nome é sophia
+- 🌱 estou interesada em aprender progamacão
+- 💞️ meu email de contato:@sophia.karam@escola.pr.gov.br
+- 
